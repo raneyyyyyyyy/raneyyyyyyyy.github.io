@@ -2,7 +2,7 @@
 **Ranee Frances Joson**
 
 *9-Arrwosmith*
-## About meeee :shell:
+## About meeee 🐚
 
 ### ⭐ **Favorites** ⭐
 
