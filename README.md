@@ -2,7 +2,27 @@
 **Ranee Frances Joson**
 
 *9-Arrwosmith*
-## Some of the Animes that I like 🌸
+## About meeee :shell:
+
+### :star: **Favorites** :star:
+
+:rainbow: Fav color: Pink
+
+🎓 Fav subject: Math
+
+🎬 Fav anime movie: Silent Voice
+
+🍿 Fav anime series: Spy x family
+
+### :ribbon: Other info :ribbon:
+
+🎶 plays guitar (accoustic) , knows a bit about ukulele , and kalimba 
+
+🐾 Dog person (I have a dog named rolex 🐶)
+
+
+
+## Animes that I like 🌸
 - Weathering with you
 
 ![weathering with you pic](https://i.pinimg.com/564x/62/61/c0/6261c0e1561c7f16203acae16fb1c1eb.jpg)
