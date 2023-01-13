@@ -25,8 +25,13 @@
 
 
 - Howl's Moving Castle
+
+![Howl's Moving Castle pic](https://i.pinimg.com/564x/13/f4/31/13f4319391c47baac8beb379872ad06a.jpg)
+
+
 - Spy x Family
-- My Hero Academia
+
+![Spy x family pic](https://i.pinimg.com/564x/4a/7f/b3/4a7fb3837aaf229ff7e5ce5df7e4e1c8.jpg)
 
 ---
 
