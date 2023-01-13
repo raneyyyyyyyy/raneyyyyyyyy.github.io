@@ -22,6 +22,8 @@
 
 ✈️ I like to travel (visited singapore and planning to visit Japan next!🏯)
 
+📖 I enjoy reading books (I have a collection of books mostly fantasies like Thea Stiton and Geronimo Stilton)
+
 
 ## Animes that I like 🌸
 - Weathering with you
