@@ -20,6 +20,10 @@
 ![Silent Voice pic](https://i.pinimg.com/564x/8a/01/51/8a0151de3bf1723552434d499e4f9707.jpg)
 
 - Arririetty
+
+![arririetty pic](https://i.pinimg.com/564x/28/b2/71/28b27118686d9e24d727495c1eac455d.jpg)
+
+
 - Howl's Moving Castle
 - Spy x Family
 - My Hero Academia
