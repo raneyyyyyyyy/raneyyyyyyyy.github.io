@@ -4,9 +4,9 @@
 *9-Arrwosmith*
 ## About meeee :shell:
 
-### :star: **Favorites** :star:
+### ⭐ **Favorites** ⭐
 
-:rainbow: Fav color: Pink
+🌈 Fav color: Pink
 
 🎓 Fav subject: Math
 
@@ -14,7 +14,7 @@
 
 🍿 Fav anime series: Spy x family
 
-### :ribbon: Other info :ribbon:
+### 🎀 Other info 🎀
 
 🎶 plays guitar (accoustic) , knows a bit about ukulele , and kalimba 
 
