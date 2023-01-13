@@ -2,15 +2,19 @@
 **Ranee Frances Joson**
 
 *9-Arrwosmith*
-## Animes that I like 🌸
->**Anime Movies**
+## Some of the Animes that I like 🌸
 - Weathering with you
+
+![weathering with you pic] (https://www.filmibeat.com/img/2022/11/weathering-with-you-2019-film-poster-1669208820.jpg)
+
+
 - Spirited Away
 - Drifting Home
-- Hello World
 - Silent Voice
 - Arririetty
 - Howl's Moving Castle
->**Anime series**
 - Spy x Family
 - My Hero Academia
+
+---
+
