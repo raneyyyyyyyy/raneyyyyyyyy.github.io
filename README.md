@@ -20,6 +20,7 @@
 
 🐾 Dog person (I have a dog named rolex 🐶)
 
+✈️ I like to travel (visited singapore and planning to visit Japan next!🏯)
 
 
 ## Animes that I like 🌸
