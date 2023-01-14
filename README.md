@@ -65,7 +65,12 @@
 
 ## ☁️ Songs ☁️
 
-wait a bit || teka by Fishy Bishie
+Filipino and english songs <3
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5qMTVKhcoEENlM8Xlo4Otn?utm_source=generator&theme=0" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+wait a bit || teka by Fishy Bishie 
  : a song that a lot of students can relate to <3
  
  <iframe width="560" height="315" src="https://www.youtube.com/embed/0GqdscQiMEs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
